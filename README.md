@@ -1,3 +1,5 @@
 # opdracht-collage-Eva
 
-Eva blabla
+goku
+vegeta
+gohan
